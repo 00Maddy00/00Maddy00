@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Maddy
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently learning B.TECH ECE
+- 💞️ I’m looking forward to work with projects and help what i could,laern stuffs.
+- 📫 How to reach me mr.mecafe@gmail.com
